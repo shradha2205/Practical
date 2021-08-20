@@ -1,2 +1,2 @@
 Myself Shradha Ashima Singh.
-I have completed my M.Tech. from Computer Science And Enggineering.
+I have completed my M.Tech. from Computer Science And Enggineering from Bhopal.
